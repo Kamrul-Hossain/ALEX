@@ -4,9 +4,9 @@
 **3**.**⚠️⚠️HACK On Your **Risk!!** I'M Not Responsible For It</br>**
 **4**.⚠️⚠️If you do anything **wrong** using these tools, you will be fully responsible for it
 ## FACEBOOK GROUPS
-[TECH LAVA](https://bit.ly/G-TECH-LAVA/)
+[TECH LAVA](https://www.facebook.com/groups/TECHLAVA/?ref=share)
 ## YOUTUBE
-[TECH LAVA](https://bit.ly/TECH-LAVA/)
+[TECH LAVA](https://m.youtube.com/channel/UC-urDHwTV9zeU8J1u1PqdZQ)
 
 
 # ANDROID TERMUX COMMANT
